@@ -1,4 +1,4 @@
-# 💫 About Me:
+💫 About Me:
 Computer Science Student <br>• Code• Learn • Build • Repeat  <br>Future Software Engineer 🚀<br>
 
 
