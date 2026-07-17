@@ -1,5 +1,5 @@
 # 💫 About Me:
-HeY ! I am Kartik Singh 
+HeY ! I am Kartik Singh <br>
 Computer Science Student <br>• Code• Learn • Build • Repeat  <br>Future Software Engineer 🚀<br>
 
 
